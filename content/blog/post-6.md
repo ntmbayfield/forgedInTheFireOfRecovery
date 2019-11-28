@@ -15,7 +15,7 @@ I've manages to make it through a whole 7 days here at Chrysalis.  It felt like 
 
 Emotions/feelings include: nervous, curious, rambunctious.
 My motivation level is a 7. (If I survived one week of this place, then I can survive another week).
-What coping skills did I use last week? Readin, crying, self-care, journaling.
+What coping skills did I use last week? Reading, crying, self-care, journaling.
 
 I decided I'm going to stop wearing the workout outfits so much and go back to dressing more like I normally do, business-casual.  I think I only packed all-black gym outfits as a silent sign of protest about coming here and as a way of showing I'm mourning my old life.
 
