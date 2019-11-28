@@ -11,7 +11,7 @@ I miss Michael from Los Angeles who I've known since I was 20-years old and has 
 
 I miss Brandon, but I think Sky might have turned him against me.  So, I don't know if we're going to be friends after this but I hope so.
 
-I've manages to make it through a whole 7 days here at Chrysalis.  It felt like the end of the world when I had to come here but the ability to adapt to change is part of what makes us human.  
+I've managed to make it through a whole 7 days here at Chrysalis.  It felt like the end of the world when I had to come here but the ability to adapt to change is part of what makes us human.  
 
 Emotions/feelings include: nervous, curious, rambunctious.
 My motivation level is a 7. (If I survived one week of this place, then I can survive another week).
