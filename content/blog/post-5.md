@@ -32,6 +32,9 @@ I miss Mike who appreciates my evil genius tendencies and the kind heart that dw
 I miss 23, my fairy godmother, who's been the magical translator, mediator and bridge of communication between Mom and I.  Her name for me is 22.
 
 I liked one of the things that I read this week that talked about the fact that you don't have to hit "rock bottom" to begin recovery.  I think my "rock bottom" would have been when I was doing cocaine 7-years ago.  A large part of that group's handout was related to Acceptance.  The parts of the handout that most resonated with me included:
-  -"Entering treatment is the first act of acceptance.  It cannot be the only one.  Recovery is an ongoing process of accepting that substance abuse is more powerful than you are."
-  -"Admitting that you have a problem and seeking help are not weaknesses.  Does getting treatment for diabetes or a heart condition mean that you are a weak-willed person?"
-  -"People who accept the reality of substance dependence to the greatest degree benefit the most in recovery.  Those who do not fight with the idea that they have a substance use disorder are the ones who ultimately are the most successful in recovery.  The only way to be successful in recovery and get control of your problem is first to admit that it has control over you."
+
+-"Entering treatment is the first act of acceptance.  It cannot be the only one.  Recovery is an ongoing process of accepting that substance abuse is more powerful than you are."
+
+-"Admitting that you have a problem and seeking help are not weaknesses.  Does getting treatment for diabetes or a heart condition mean that you are a weak-willed person?"
+
+-"People who accept the reality of substance dependence to the greatest degree benefit the most in recovery.  Those who do not fight with the idea that they have a substance use disorder are the ones who ultimately are the most successful in recovery.  The only way to be successful in recovery and get control of your problem is first to admit that it has control over you."
